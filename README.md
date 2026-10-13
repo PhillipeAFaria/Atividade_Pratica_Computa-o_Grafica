@@ -1,2 +1,0 @@
-# Atividade_Pratica_Computação_Grafica
-
